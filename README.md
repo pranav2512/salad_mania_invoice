@@ -1,4 +1,10 @@
 # app_mania
+# video
+
+
+https://github.com/pranav2512/salad_mania_invoice/assets/83396279/79b46d9c-12a5-46a8-ab91-c0c52003cc7c
+
+
 
 1
 
